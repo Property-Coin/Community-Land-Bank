@@ -1,1 +1,2 @@
+- [How to Buy Properties Through The LAND BANK (even if you're broke) | Ep 185](https://youtu.be/AfioKxMK_B4)
 - [Ep 2 How To Buy Properties From Auctions For Only $600 with Dr. Jamisa McIvor-Bennett](https://youtu.be/5Px-xLgUAUg)
