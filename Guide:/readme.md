@@ -1,0 +1,1 @@
+- [Ep 2 How To Buy Properties From Auctions For Only $600 with Dr. Jamisa McIvor-Bennett](https://youtu.be/5Px-xLgUAUg)
